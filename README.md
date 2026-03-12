@@ -660,8 +660,3 @@ Schelling, T.C. (1978). *Micromotives and Macrobehavior.* W.W. Norton. [Minimal 
 
 *Derived from the ART ≠ IDEAS field experiment, New York City, 2026. Single session. Uncontrolled. One sheet of paper. The limitations are features — they define exactly what must be tested next.*
 
----
-
-About
-A First-Principles Non-Equilibrium Field Theory of Sequential Collective Artifact Production
-https://www.youtube.com/watch?v=16W7c0mb-rE
